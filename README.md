@@ -31,3 +31,8 @@ Now You have to enter the victims' domain:
 Eg: example.com
 
 ### Give me Star
+Please Give me star
+
+### Join Our group
+
+https://chat.whatsapp.com/LnXrU9bqRFTK7DrEMmIJC8
